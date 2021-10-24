@@ -4,5 +4,4 @@
 # Welcome :) 
 
 
-https://user-images.githubusercontent.com/61564580/138615349-ac9264f2-e10d-4a94-9908-5e620d4a5cef.mov
 
